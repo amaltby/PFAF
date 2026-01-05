@@ -31,7 +31,7 @@ Classes are on Tuesday evenings on Zoom, with recording sent to all donors the n
 * Tuesday, Nov. 18, 8p ET 
 * Tuesday, Dec. 16, 8p ET 
 * Tuesday, Jan. 20, 8p ET
-* Tuesday, Feb. 24, 8p ET
+* Tuesday, Feb. 17, 8p ET
 * Tuesday, March 17, 8p ET
 
 #### What gear do I need?
@@ -59,6 +59,6 @@ Learn more [here!](https://abortionfunds.org/about/abortion-funds-101/)
 I almost always have a friend standing by to admit people to the Zoom room (cross-checking their names with our RSVP list), monitor the chat, and take care of any funny business. Which has never happened (so far)!
 
 ## About Anna
-I spent about 15 years as a magazine and digital editor, working on health and fitness content (among other things!) for publications such as SELF, Real Simple, Refinery29, and Elemental. I became an ACE–certified personal trainer in 2015, a prenatal and postpartum exercise specialist in 2017, and a beginner and intermediate mat Pilates instructor in 2021. I helped create and launch Nike Training Club's first-ever comprehensive prenatal and postpartum exercise program, Nike (M)ove Like a Mother, in 2022, and currently work as a consulting script writer and content strategist for Hinge Health, as well as a personal trainer and mat Pilates instructor for private clients. I teach a live Pilates class in-person at a beautiful studio in Windsor Terrace, Brooklyn, called Esquina, and I write the newsletter [How to Move](https://howtomove.substack.com/).
+I spent about 15 years as a magazine and digital editor, working on health and fitness content (among other things!) for publications such as SELF, Real Simple, Refinery29, and Elemental. I became an ACE–certified personal trainer in 2015, a prenatal and postpartum exercise specialist in 2017, and a beginner and intermediate mat Pilates instructor in 2021. I helped create and launch Nike Training Club's first-ever comprehensive prenatal and postpartum exercise program, Nike (M)ove Like a Mother, in 2022, and have worked as a consulting script writer and content strategist for Hinge Health. These days, I write the newsletter [How to Move](https://howtomove.substack.com/), work as a personal trainer and mat Pilates instructor for private clients, and teach a live Pilates class in person at Esquina in Windsor Terrace, Brooklyn.
  
 (The views expressed here do not necessarily reflect those of my clients.)
