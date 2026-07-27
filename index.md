@@ -27,12 +27,10 @@ I'll add you to the calendar invite with the Zoom info. For a one-off donation, 
 #### When are the events?
 
 Classes are on Tuesday evenings on Zoom, with recording sent to all donors the next day. Upcoming classes: 
-* Tuesday, Oct. 21, 8p ET
-* Tuesday, Nov. 18, 8p ET 
-* Tuesday, Dec. 16, 8p ET 
-* Tuesday, Jan. 20, 8p ET
-* Tuesday, Feb. 17, 8p ET
-* Tuesday, March 17, 8p ET
+* Tuesday, Aug. 11, 8p ET
+* Tuesday, Sept. 15, 8p ET 
+* Tuesday, Oct. 13, 8p ET 
+
 
 #### What gear do I need?
 All you need is a mat, some water, and a comfortable space. If you have a hard floor, you might want two mats, or a beach towel on top of your mat, for a little extra cushioning. Pets are very welcome.
@@ -44,7 +42,7 @@ Basically, no diet/weight/body-shape-and-size talk. My focus is 100% on function
 It's fine to keep your camera off (though if you'd like to keep it on, it's always nice to see friendly faces!). If you need to use a Zoom display name other than your real name, just let me know in advance so I can admit you to the room.
 
 #### How much money have you raised so far?
-Since July 2022, we have collectively donated more than $45,000 to abortion funds!
+Since July 2022, we have collectively donated more than $61,000 to abortion funds!
 
 #### What if I can't make it to the event but still want to participate?
 I record each class and will send a link to the video shortly afterwards to all who donated. (Even if you attend "live," you'll still get the video.)
@@ -59,6 +57,6 @@ Learn more [here!](https://abortionfunds.org/about/abortion-funds-101/)
 I almost always have a friend standing by to admit people to the Zoom room (cross-checking their names with our RSVP list), monitor the chat, and take care of any funny business. Which has never happened (so far)!
 
 ## About Anna
-I spent about 15 years as a magazine and digital editor, working on health and fitness content (among other things!) for publications such as SELF, Real Simple, Refinery29, and Elemental. I became an ACE–certified personal trainer in 2015, a prenatal and postpartum exercise specialist in 2017, and a beginner and intermediate mat Pilates instructor in 2021. I helped create and launch Nike Training Club's first-ever comprehensive prenatal and postpartum exercise program, Nike (M)ove Like a Mother, in 2022, and have worked as a consulting script writer and content strategist for Hinge Health. These days, I write the newsletter [How to Move](https://howtomove.substack.com/), work as a personal trainer and mat Pilates instructor for private clients, teach a live Pilates class in person at Esquina in Windsor Terrace, Brooklyn, and contribute to the New York Times' Well section.
+I spent about 15 years as a magazine and digital editor, working on health and fitness content (among other things!) for publications such as SELF, Real Simple, Refinery29, and Elemental. I became an ACE–certified personal trainer in 2015, a prenatal and postpartum exercise specialist in 2017, and a beginner and intermediate mat Pilates instructor in 2021. I helped create and launch Nike Training Club's first-ever comprehensive prenatal and postpartum exercise program, Nike (M)ove Like a Mother, in 2022, and have worked as a consulting script writer and content strategist for Hinge Health. These days, I write the newsletter [How to Move](https://howtomove.substack.com/), work as a personal trainer and mat Pilates instructor for private clients, and contribute to the New York Times' Well section.
  
 (The views expressed here do not necessarily reflect those of my clients.)
